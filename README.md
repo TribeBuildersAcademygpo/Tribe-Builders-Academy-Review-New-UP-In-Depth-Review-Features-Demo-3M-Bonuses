@@ -13,6 +13,69 @@
 
 
 <hr class="" data-start="1251" data-end="1254" />
+# 🏛️ Tribe Builder’s Academy – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To receive **exclusive William bonuses**, you must purchase from the **Front-End link** below using the correct affiliate ID.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🎓 Front End (FE): Tribe Builder’s Academy  
+🛠️ Build and scale your community-driven business  
+👉 Link:  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💥 OTO 1: Tribe Builder’s Academy Explosion  
+🚀 Advanced strategies for explosive tribe growth  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💬 OTO 2: Tribe Builder’s Academy Mega Messenger  
+📩 Supercharge your Facebook Messenger engagement  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎤 OTO 3: Tribe Builder’s Academy Tribe Building LIVE  
+🎯 Access live sessions & real-time guidance  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🤝 OTO 4: Tribe Builder’s Academy Partner Program Early Access  
+🛍️ Reseller rights & early access to partnership program  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎁 Bonus Page – See What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Purchase **Tribe Builder’s Academy (FE)** using the link above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm Step 2 via email for verification!
+
+---
 
 <h2 class="" data-start="1256" data-end="1308">What Is Tribe Builders Academy (For the Newbies)?</h2>
 <p class="" data-start="1310" data-end="1397">Before we get into the OTOs, let’s cover the base product for anyone still catching up.</p>
@@ -208,3 +271,66 @@
 
 <hr class="" data-start="6522" data-end="6525" />
 <p class="" data-start="6527" data-end="6706"><strong data-start="6527" data-end="6561">Ready to build something real?</strong><br data-start="6561" data-end="6564" />👉 Grab Tribe Builders Academy now and unlock the OTOs while they’re still available.<br data-start="6649" data-end="6652" />It’s not just training—it’s your blueprint for growth.</p>
+# 🏛️ Tribe Builder’s Academy – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To receive **exclusive William bonuses**, you must purchase from the **Front-End link** below using the correct affiliate ID.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🎓 Front End (FE): Tribe Builder’s Academy  
+🛠️ Build and scale your community-driven business  
+👉 Link:  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💥 OTO 1: Tribe Builder’s Academy Explosion  
+🚀 Advanced strategies for explosive tribe growth  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💬 OTO 2: Tribe Builder’s Academy Mega Messenger  
+📩 Supercharge your Facebook Messenger engagement  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎤 OTO 3: Tribe Builder’s Academy Tribe Building LIVE  
+🎯 Access live sessions & real-time guidance  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🤝 OTO 4: Tribe Builder’s Academy Partner Program Early Access  
+🛍️ Reseller rights & early access to partnership program  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎁 Bonus Page – See What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Purchase **Tribe Builder’s Academy (FE)** using the link above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm Step 2 via email for verification!
+
+---
